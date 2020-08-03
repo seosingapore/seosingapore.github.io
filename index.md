@@ -28,3 +28,11 @@
 3. 急于求成，总是喜欢找网上兼职，相信简简单单就能发大财。
 
 新加坡工作推荐 [海底捞](https://65yee.com/company/singapore-hai-di-lao-dining-pte-ltd)
+
+
+## 新加坡其他网站推荐
+[新加坡租房网](https://65zufang.com)
+[狮城租房网](https://houserentalsingapore.com/)
+[新加坡网站](https://xinjiapowangzhan.com/)
+[新加坡新闻](https://230news.com/)
+[新加坡新华人网](https://10203010.com/)
